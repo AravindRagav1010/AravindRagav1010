@@ -7,7 +7,7 @@ Always curious about learning new things, and exploring the possibilities in the
 
   
 - 🌱 **I’m currently pursuing my under graduation in B. Tech in Computer and Communication Engineering at Amrita Vishwa Vidyapeetham Coimbatore**
-- 📫 You can reach me at **thearavindravee@gmail.com**
+- 📫 You can reach me at **aravindragav10@gmail.com**
 
 <h3 align="center">Check my Profle:</h3>
 <p align="center">
